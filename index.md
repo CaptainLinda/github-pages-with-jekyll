@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to the Lindi Blog
 
-I'm glad you are here. I plan to talk about ...
+Hier wirst du jede Menge Content erhalten. Coming Soon.
